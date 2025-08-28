@@ -27,7 +27,7 @@ I'm a passionate **developer in the making**, blending curiosity with code to bu
 
 
 ## 🌍 Connect With Me  
-- [GitHub](https://github.com/nevedha10)  
+- [GitHub](https://github.com/Nevedha228)  
 - [LinkedIn](https://www.linkedin.com/in/nevedha10)  
 
 ---
